@@ -1,6 +1,8 @@
  
 
-https://user-images.githubusercontent.com/36204955/235433790-223fc051-abe6-47d4-9b4f-1dd9b5087147.mp4
+https://user-images.githubusercontent.com/36204955/235439841-daecab25-4283-442f-8e2b-9f78aa4aab35.mp4
+
+
 
 # «Градиент и Тень».
 
